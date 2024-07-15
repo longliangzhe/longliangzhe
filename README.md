@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @longliangzhe
+- 👀 I’m interested in program.
+- 🌱 I’m currently learning how to make a game with python.
+- 📫 How to reach me?You can call the +86 17818883308 or email to longliangzhe@icloud.com/17818883308@139.com
+- 😄 Pronouns: Lighting
+- 👨 From: China
